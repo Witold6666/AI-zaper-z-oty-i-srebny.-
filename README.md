@@ -1,0 +1,1 @@
+# AI-zaper-z-oty-i-srebny.-
